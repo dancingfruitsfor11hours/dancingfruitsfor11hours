@@ -17,4 +17,4 @@ i dont roleplay. sorry!
  
 </details>
 
-my only addison pair is pink and yellow. ^u^
+my only addison pairs is pink + yellow and blue + white. ^u^
