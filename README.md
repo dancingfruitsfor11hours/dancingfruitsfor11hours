@@ -9,11 +9,12 @@ mostly sitting with a friend. c^
 
 mostly afk, busy life or offtab makin' ponies
 
-C+H is always allowed! if im alone.
+C+H is always allowed! even with a friend, theyre always fine with it.
 
-ships are on thin ice. platonic only!!!! ROMANTIC IS FOR FRIENDS ONLY!!!
+ships are on thin ice. platonic only!!!! ROMANTIC IS FOR FRIENDS ONLY!!! roleplaying is optional for me.
 
-i dont roleplay. sorry!
+^ though, i have no opinions on ship discourse, nor wanted to be dragged into it. so please dont drag me into any discourse.
+
  
 </details>
 
